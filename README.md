@@ -8,4 +8,4 @@ Social Media : \
 [Youtube](https://www.youtube.com/channel/UC_XQkWu_EPqam4vHdvh058A)
 
 hope you guys like it\
-Thanks a lot![Thumbnail](https://user-images.githubusercontent.com/78606852/178409940-52907ab3-73df-4d5d-9dec-fa448b39c0d5.png)
+
